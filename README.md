@@ -13,7 +13,7 @@
 
 交流QQ群号：117445471
 
-如有相关意见、建议或者合作意向，可发送邮件至[jasonleon@163.com](mailto:jasonleon@163.com)联系我
+如有相关意见、建议或者合作意向，可发送邮件至[jasonleon01@outlook.com](mailto:jasonleon01@outlook.com)联系我
 
 ## 合作者
 
